@@ -7,3 +7,4 @@ Even in his old age he is still regarded as one of the greatest swordsman of his
 * great swordsman
 * kingsguard
 * unmarried
+> I am a knight! I shall die a knight!
